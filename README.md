@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ploompploomp
-- 👀 I’m interested in eobbing banks
+- 👀 I’m interested in robbing banks
 - 🌱 I’m currently learning what the heck github is
 - 💞️ I’m looking to collaborate on your butt
 - 📫 How to reach me: get long arms id tou cant reach- duh
